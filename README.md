@@ -1,3 +1,4 @@
+![logo](https://github.com/priyachauhan2003/priyachauhan2003/blob/main/welcome%20to%20my%20account.png)
 <h1 align="center">Hi 👋, I'm Priya chauhan</h1>
 <h3 align="center">A passionate software engineer from India</h3>
 
