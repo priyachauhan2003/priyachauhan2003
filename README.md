@@ -6,7 +6,7 @@
 
 - 📫 How to reach me **priyachauhan.kkr@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1ItAwTFe2qWQ9RK-hY_3go9uhVjU3ThIx/view?usp=sharing](https://docs.google.com/document/d/1ORF6a7TQLTeCmc_9TrqMVal42l7x8oA_AvGYtMznHeM/edit?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1ItAwTFe2qWQ9RK-hY_3go9uhVjU3ThIx/view?usp=sharing](https://drive.google.com/file/d/16WONvj-s5Uxg6g9gsU6SeVtSMvEuPmg5/view?usp=sharing)
 
 - ⚡ Fun fact **I think , I am highly energetic and excited.**
 
